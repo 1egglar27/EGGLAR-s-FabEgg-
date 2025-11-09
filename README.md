@@ -1,0 +1,1 @@
+Egglar, Master of Eggs, forged three forces: Word, Deed, and Thought. This FabEggé holds the third. Open it and you hear only silence—the kind that lines up ideas. It grants no wishes; it shows the next move. Close the lid, take the step. The light will remember your name.
